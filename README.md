@@ -1,16 +1,17 @@
-### Hi there 👋
+### SEJA BEM VINDOS AO COLEGIO ESTADUAL BEATRIZ FARIA ANSAY CM
 
-<!--
-**lindosdobfa/lindosdobfa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### O COLÉGIO BEATRIZ FARIA ANSAY FOI FUNDADO EM 1947,O NOME VEIO ATRAVÉS DE UMA HOMENAGEM PARA UMA PROFESSORA MUITO QUERIDA. EM 2019 O COLÉGIO SE TORNOU CÍVICO-MILITAR NO QUAL OCASIONOU MUITAS MUDANÇAS E ADIÇÂO DE MONITORES.
 
-Here are some ideas to get you started:
+### O COLÉGIO É FORMADO POR UMA QUADRA DE ESPORTES,17 SALAS, UMA SALA DE INFORMÁTICA, BIBLIOTECA, AUDITÓRIO, LABORATÓRIO,CANTINA,6 BANHEIROS SENDO 1 PARA PCD E OUTRO EXCLUIVO PARA PROFESSORES  E FUNCIONARIO .
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+![f1c4d8ff92eb3ad6eff2ce60c5b004fc](https://github.com/lindosdobfa/lindosdobfa/assets/138328991/7120dfad-7cc1-4ef6-84c6-f142c5ce9b20)
